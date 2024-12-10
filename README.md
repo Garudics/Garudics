@@ -2,7 +2,7 @@
 - 👀 I’m interested in 
 - 🌱 I’m currently learning game's
 - 💞️ I’m looking to collaborate on .rih bfdbvfd
-- 📫 How to reach me ..ggfbdfgsedfs
+- 📫 How to reach me ..gghynfrefgre
 - 😄 Pronouns: ..poovflmvhspf
 - ⚡ Fun fact: trfhtrfhrfegfwd
 <!-tgrfhtfrh
