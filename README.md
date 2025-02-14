@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning game's
 - 💞️ I’m looking to collaborate on fshyhshyh
 - 📫 How to reach me ..njhturyh
-- 😄 Pronouns: ..poovflmvhspf
+- 😄 Pronouns: ..hyfddijk
 - ⚡ Fun fact: trfhtrfhrfegfwd
 <!-tgrfhtfrh
 Garudics/Garudics is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
