@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Garudics
 - 👀 I’m interested in 
 - 🌱 I’m currently learning game's
-- 💞️ I’m looking to collaborate on dswzxcikugboi
+- 💞️ I’m looking to collaborate on vgfdiytugkliljk
 - 📫 How to reach me ..gyfrtgu
 - 😄 Pronouns: ..hyfddijk
 - ⚡ Fun fact: trfhtrfhrfegfwd
